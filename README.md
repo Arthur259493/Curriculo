@@ -4,7 +4,7 @@
 📍 Sobradinho - DF  
 📧 artubarao25@gmail.com  
 📱 (61) 99170-0209  
-
+LINKEDIN: https://www.linkedin.com/in/arthur-vieira-b225a932b/
 ---
 
 ## 🚀 Sobre Mim
