@@ -75,4 +75,4 @@ O destaque de estudar no SESI é a preparação para o mercado de trabalho, prin
 # 📫 Contato
 
 - 📧 Email: artubarao25@gmail.com
-- 💼 GitHub: https://github.com/seuusuario
+- 💼 GitHub: [https://github.com/seuusuario](https://github.com/Arthur259493)
