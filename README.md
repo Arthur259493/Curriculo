@@ -5,6 +5,7 @@
 📧 artubarao25@gmail.com  
 📱 (61) 99170-0209  
 LINKEDIN: https://www.linkedin.com/in/arthur-vieira-b225a932b/
+PAGINA WEB: https://sites.google.com/view/portfolioarthurvieira?usp=sharing
 ---
 
 ## 🚀 Sobre Mim
